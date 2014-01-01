@@ -9,5 +9,4 @@ be the perfect balance between size (a few thousand lines per document
 at most) and cohesion (preserves the train of thought).
 
 Making this public, as with any open source project, forced me to clean
-up the notes and focus on consistency and practicality enough to make
-the overall approach better: everyone wins.
+up the notes and focus on consistency and practicality.
