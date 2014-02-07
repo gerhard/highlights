@@ -42,7 +42,7 @@
 
 20. Don’t try to fix anyone.
 
-## Here is your assignment...
+## [Here is your assignment...](http://happywithless.tumblr.com/post/23480127273/your-assignment)
 
 1. **You will receive a body.** You may like it or not, but it will be yours for the entire period.
 
@@ -63,3 +63,41 @@
 9. **The answers lie inside you.**
 
 10. **Whether you think you can or can't, you're right in either case.**
+
+## [The Ten Habits of Passionate People](http://www.pickthebrain.com/blog/the-ten-habits-of-passionate-people/)
+
+> Men’s natures are alike; it is their habits that separate them. _Confucius_
+
+1. Wake up early
+
+2. Read vigorously
+
+> The man who does not read good books has no advantage over the man who can’t read them. _Mark Twain_
+
+3. Simplify
+
+> The ability to simplify means to eliminate the unnecessary so that the necessary may speak. _Hans Hofmann_
+
+4. Slow down
+
+> Slow down and everything you are chasing will come around and catch you. _John De Paola_
+
+5. Workout
+
+> Lack of activity destroys the good condition of every human being, while movement and methodical physical exercise save it and preserve it. _Plato_
+
+6. Practice daily
+
+> The more I practice, the luckier I get. _Jerry Barber_
+
+7. Network
+
+8. Keep a gratitude journal
+
+> He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has. _Epictetus_
+
+9. Be prolific
+
+Edison made 1,000 (or 10,000) unsuccessful attempts at inventing the light bulb.
+
+10. Have a Blog
