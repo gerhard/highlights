@@ -101,3 +101,26 @@
 Edison made 1,000 (or 10,000) unsuccessful attempts at inventing the light bulb.
 
 10. Have a Blog
+
+# [Life is a game. This is your strategy guide.](http://oliveremberton.com/2014/life-is-a-game-this-is-your-strategy-guide/)
+
+As a young player, you’ll have lots of time and energy, but almost no experience. This is the time to level up your skills quickly. You will never have so much time and energy again.
+
+* Keep your state high.
+* Don’t demand too much willpower from one day.
+* Attempt the most important tasks first.
+* Reduce the need to use willpower by reducing choices.
+
+A key part of playing the game is balancing your competing priorities with the state of your body. Just don’t leave yourself on autopilot, or you’ll never get anything done.
+
+> Choosing the right tasks at the right time is most of the game.
+
+The odds of anyone being born in their optimal location are virtually zero, so research your options, and consider moving early. Location is a multiplier to all of your skills and states.
+
+The most important rule of money is never to borrow it, except for things that earn you more back.
+
+It’s almost impossible to get rich working for someone else. Riches do not come from work alone, they come from  owning things – assets – that pay back more than they cost, and your own company is a powerful asset you can create from scratch. Compound your winnings into more assets, and eventually they can remove your need to work at all.
+
+At the start of the game, you had no control over who you were or your environment. By the end of the game that becomes true again. Your past decisions drastically shape where you end up, and if you’re happy, healthy, fulfilled – or not – in your final days there’s far less you can do about it.
+
+That’s why your strategy is important. Because by the time most of us have figured life out, we’ve used up too much of the best parts.
